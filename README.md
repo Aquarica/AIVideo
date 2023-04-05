@@ -25,3 +25,6 @@ YouTube Video Link of AI video:
 https://youtu.be/uhARb6iGNoQ
 w/o loop: 
 https://youtube.com/shorts/Oggmc7Vr3sw
+
+Artist Statement:
+https://youtu.be/wFRiwxonvIc
